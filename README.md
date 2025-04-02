@@ -1,2 +1,3 @@
 # Tweeters
  
+FOLLOW GAME DIRECTIONS 1:1 FIRST!
